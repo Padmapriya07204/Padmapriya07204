@@ -29,7 +29,7 @@
 ---
 
 📫 Let’s connect:  
-- LinkedIn: *[Add your link]*  
+- LinkedIn: www.linkedin.com/in/padmapriya-v-05a8b521b 
 
 ---
 
